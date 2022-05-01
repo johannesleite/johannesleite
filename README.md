@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Hi there
 
 👨‍🎓 IT Student at University of Agder
 
